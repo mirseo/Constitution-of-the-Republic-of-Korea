@@ -16,5 +16,5 @@
 감사합니다.
 
 
-✦ 타이핑 히스토리 영상은 [유튜브, mirseo-0124](https://www.youtube.com/@mirseo-0124) 에서 확인 가능합니다.
+✦ 타이핑 히스토리 영상은 [유튜브, mirseo-0124](https://www.youtube.com/@mirseo-0124) 에서 확인 가능합니다.  
 ✦ 헌법은 [국가법령정보센터](https://www.law.go.kr/lsEfInfoP.do?lsiSeq=61603)에서 참고하였습니다.
